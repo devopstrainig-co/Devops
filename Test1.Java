@@ -1,3 +1,0 @@
-Mohandass 
-Mirshika
-Sutha
